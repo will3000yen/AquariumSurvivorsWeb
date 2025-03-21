@@ -7,7 +7,7 @@
 
 comming soon...
 
-制作；まるくら工房　くらち（https://x.com/yahoogoogleaple）
+制作：まるくら工房　くらち（https://x.com/yahoogoogleaple）
 
 連絡先：will3000yen@gmail.com
 
