@@ -10,7 +10,7 @@
 
 制作：まるくら工房　くらち <a href="https://x.com/yahoogoogleaple">[X]</a>
 
-連絡先：will3000yen@gmail.com
+連絡先：marukurakoubou@gmail.com
 
 プライバシーポリシー ：https://will3000yen.github.io/AquariumSurvivorsWeb/privacyPolicy.html
 
