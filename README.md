@@ -8,7 +8,7 @@
 
 対応機種　MetaQuest2,3,3s
 
-制作：まるくら工房　くらち <a href="https://x.com/yahoogoogleaple">[X]</a>
+制作：まるくら工房　くらち <a href="https://x.com/kurachinox">[X:@KURACHInoX]</a>
 
 連絡先：marukurakoubou@gmail.com
 
